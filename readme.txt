@@ -1,2 +1,1 @@
-new shit
-mister bo jangles
+starting fresh
